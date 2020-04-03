@@ -1,0 +1,1 @@
+Binna is a boy who has lost his memory in Bhuj earthquake.
