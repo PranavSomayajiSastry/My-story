@@ -1,1 +1,1 @@
-Binna is a boy who has lost his memory in Bhuj earthquake.
+Binna is a boy who has lost his memory in Bhuj earthquake.Will he be able to reach to his family?
